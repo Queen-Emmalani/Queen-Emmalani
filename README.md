@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Queen-Emmalani
+- 👋 Hi, I'm Emma. 
 - 👀 I’m interested in someone. 
 - 🌱 I’m currently learning how to manage an unhealthy amount of stress.
 - 💞️ I’m looking to collaborate on life ig?
