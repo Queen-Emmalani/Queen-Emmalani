@@ -5,6 +5,7 @@
 - 📫 How to reach me: if you can't, you don't.
 - 😄 Pronouns: what are you, a cop?
 - ⚡ Fun fact: I need free time.
+- Francium is the best element fr
 
 <!---
 Queen-Emmalani/Queen-Emmalani is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
