@@ -1,5 +1,5 @@
 - 👋 Hi, I'm Emma. 
-- 👀 I’m interested my boyfriend. If you want him, you can have him. I don't want him. 
+- 👀 I’m interested a robotics kid ;)
 - 🌱 I’m currently learning how to manage an unhealthy amount of stress.
 - 💞️ I’m looking to collaborate on life ig?
 - 📫 How to reach me: if you can't, you don't.
